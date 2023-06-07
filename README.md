@@ -1,1 +1,1 @@
-CONTACT: varich.malee@gmail.com
+Contact: varich.malee@gmail.com
